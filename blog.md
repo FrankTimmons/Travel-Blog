@@ -9,3 +9,5 @@ Hakuba is a smaller peaceful ski town with **great** hiking in the summer!
 * Hakodate
   ![Hakodate overhead view](https://www.japan-guide.com/g20/5354_01.jpg)
   Hakodate has *the best* seafood I've ever had.
+## The Best Way to Travel
+I traveled using the JR pass and I highly recommend it to anyone who wants to see a all of what Japan has to offer. [Click here](https://japanrailpass.net/en/) for more information.
