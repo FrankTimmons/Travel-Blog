@@ -5,5 +5,7 @@
 ## Favorite Spots
 * Hakuba
 ![Hakuba resort](https://rimage.gnst.jp/livejapan.com/public/article/detail/a/00/03/a0003938/img/basic/a0003938_main.jpg?20210216151358&q=80&rw=750&rh=536)
+Hakuba is a smaller peaceful ski town with **great** hiking in the summer!
 * Hakodate
-![Hakodate overhead view](https://www.japan-guide.com/g20/5354_01.jpg)
+  ![Hakodate overhead view](https://www.japan-guide.com/g20/5354_01.jpg)
+  Hakodate has *the best* seafood I've ever had.
